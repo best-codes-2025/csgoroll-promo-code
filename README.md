@@ -3,12 +3,12 @@
 Start your 2025 experience on CSGORoll with the promo code 100MAX to immediately unlock exclusive rewards. When you apply this code as a new user, you will receive 3 free CS2 cases and a 5% bonus on your first deposit. For example, depositing $200 will give you an additional $10 bonus, giving you $210 to play with. The free cases also offer a chance to win valuable skins or items. If you refer a friend who deposits using your code, you can earn $20 in affiliate rewards.
 
 ## CSGORoll Promo Codes 2025
-
-Platform	Promo Code	Welcome bonus
-1. Exclusive Welcome Bonus	100MAX	receive 3 free cases and a 5% bonus
-2. Free Cases	VIP100	get 3 free cases
-3. Free Coins	CSGOMAX	get up to 100 coins
-4. Deposit Bonus	WARRIOR100	get +5% deposit bonus
+ | Platform  | Promo Code | Welcome bonus |
+ | ------------- | ------------- | ------------- |
+ | Exclusive Welcome Bonus  | 100MAX  | receive 3 free cases and a 5% bonus |
+ | Free Cases  | VIP100 | get 3 free cases |
+ | Free Coins | CSGOMAX | get up to 100 coins |
+ | Deposit Bonus | EGG100 | get +5% deposit bonus |
 
 ## How to Use the CSGORoll Promo Code
 
