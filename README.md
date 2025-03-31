@@ -1,6 +1,6 @@
 # CSGORoll Promo Code 2025 - Use “100MAX” for 3 Free Cases and 5% Bonus
 
-Start your 2025 experience on CSGORoll with the promo code HELLANEW to immediately unlock exclusive rewards. When you apply this code as a new user, you will receive 3 free CS2 cases and a 5% bonus on your first deposit. For example, depositing $200 will give you an additional $10 bonus, giving you $210 to play with. The free cases also offer a chance to win valuable skins or items. If you refer a friend who deposits using your code, you can earn $20 in affiliate rewards.
+Start your 2025 experience on CSGORoll with the promo code 100MAX to immediately unlock exclusive rewards. When you apply this code as a new user, you will receive 3 free CS2 cases and a 5% bonus on your first deposit. For example, depositing $200 will give you an additional $10 bonus, giving you $210 to play with. The free cases also offer a chance to win valuable skins or items. If you refer a friend who deposits using your code, you can earn $20 in affiliate rewards.
 
 ## CSGORoll Promo Codes 2025
 
@@ -42,7 +42,7 @@ A CSGORoll promo code is a special code that grants new users free cases, coins,
 
 To claim your bonus:
 1. Create an account on CSGORoll
-2. Enter a valid promo code such as HELLANEW during registration or in the Rewards section
+2. Enter a valid promo code such as 100MAX during registration or in the Rewards section
 3. Make your first deposit
 4. Instantly receive 3 free cases and a 5% bonus on your deposit
 5. Continue playing to unlock more rewards through XP levels and challenges  
