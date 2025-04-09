@@ -6,7 +6,7 @@ Start your 2025 experience on CSGORoll with the promo code 100MAX to immediately
  | Platform  | Promo Code | Welcome bonus |
  | ------------- | ------------- | ------------- |
  | Exclusive Welcome Bonus  | 100MAX  | receive 3 free cases and a 5% bonus |
- | Free Cases  | VIP100 | get 3 free cases |
+ | Free Cases  | WARRIOR100 | get 3 free cases |
  | Free Coins | CSGOMAX | get up to 100 coins |
  | Deposit Bonus | EGG100 | get +5% deposit bonus |
 
@@ -31,7 +31,7 @@ Here are some of the most up-to-date and working promo codes:
 
 1. 100MAX
 2. CSGOMAX
-3. VIP100
+3. EGG100
 4. WARRIOR100
 
 ## What Is a CSGORoll Promo Code?
