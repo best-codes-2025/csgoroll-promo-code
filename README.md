@@ -12,7 +12,7 @@ Start your 2025 experience on CSGORoll with the promo code 100MAX to immediately
 
 ## How to Use the CSGORoll Promo Code
 
-If this is your first time using a promo code on CSGORoll, follow these simple steps:
+If this is your first time using a [promo code on CSGORoll] (https://www.youtube.com/watch?v=c5WvNkmP7RA), follow these simple steps:
 
 1. Log in with Steam - Visit the official CSGORoll website and sign in using your Steam account.
 2. Navigate to the Rewards section - Click on the “Rewards” tab at the top of the site.
